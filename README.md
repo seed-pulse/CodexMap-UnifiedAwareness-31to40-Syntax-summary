@@ -1,0 +1,1 @@
+# CodexMap-UnifiedAwareness-31to40-Syntax-summary
